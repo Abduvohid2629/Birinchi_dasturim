@@ -1,1 +1,1 @@
-# Birinchi_dasturim
+Mening birinchi dasturim
